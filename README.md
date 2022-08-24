@@ -1,0 +1,2 @@
+# first schoolcode
+ lmao
